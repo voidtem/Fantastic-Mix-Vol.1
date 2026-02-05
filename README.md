@@ -8,3 +8,5 @@ TAEYANG - 나만 바라봐(ONLY LOOK AT ME)
 アイロ二 (irony) - まじ娘(majiko)
 
 Alone - Rentz (lyrics)
+
+Beautiful World－宇多田ヒカル
